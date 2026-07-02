@@ -3763,7 +3763,7 @@ june 20th, 2026
 9. pupil 学生，小学生；瞳孔；未成年人；弟子，门生
 10. Britain 大不列颠，英国
 
-june 21th, 2026
+june 21st, 2026
 
 ## day two hundred and fifty-two
 
@@ -3778,7 +3778,7 @@ june 21th, 2026
 9. fortnight 两星期；十四天
 10. ambition 雄心，野心；抱负；追求的目标；志向；夙愿；追求；有...野心
 
-june 22th, 2026
+june 22nd, 2026
 
 ## day two hundred and fifty-three
 
@@ -3793,7 +3793,7 @@ june 22th, 2026
 9. conflict 冲突，争执，矛盾；战斗；抵触
 10. bowl 碗；木球；一碗的容量；盆地，低洼地；盆；参加保龄球赛；投球；迅速移动，飞驰；滚球得分；撞击；打保龄球；滚动(球)
 
-june 23th, 2026
+june 23rd, 2026
 
 ## day two hundred and fifty-four
 
@@ -3927,3 +3927,18 @@ july 1st, 2026
 8. twist 拧，意外转折，扭，意外进展；弯曲处；盘旋；扭动，捻，歪曲；转动；扭伤
 9. snake 蛇，迂回前进
 10. benefit 得益于；利益，好处；福利政策；慈善活动；补助金，救济金；益处；优势；使...受益；对...有用；使受益
+
+july 2nd, 2026
+
+## day two hundred and sixty-three
+
+1. scope 范围；瞄准镜；眼界，见识；余地；广袤，地域
+2. suitable 合适的，适宜的
+3. ownership 所有权
+4. leaf 叶；页，张；叶子；长树叶
+5. insert 插入，嵌入；插入物；插页
+6. beginner 初学者；新手
+7. regret 后悔；对...感到后悔，对...感到遗憾；抱歉；惋惜；懊悔；遗憾；歉意
+8. battery 电池；排炮；一组，许多，众多；炮兵连；蓄电池
+9. stain 污渍，弄脏；玷污；染色，染料，着色剂，污迹
+10. poet 诗人 
