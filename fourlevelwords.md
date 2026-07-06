@@ -3987,3 +3987,18 @@ july 5th, 2026
 8. hamburger 汉堡包；汉堡牛肉饼
 9. prevail 战胜；流行，普遍存在
 10. liter 升，公斤；
+
+july 6th, 2026
+
+## day two hundred and sixty-seven
+
+1. socialism 社会主义
+2. pistol 手枪，信号，发令枪，用手枪杀死，用手枪伤害
+3. electronic 电子设备，电子产品；电子学；电子工业；电器；电子行业
+4. decade 十年，一个年代
+5. unwilling 不情愿的，不愿意的，勉强的
+6. crowd 人群，观众，民众；朋友；一伙人；聚集在。。。周围；涌入；挤满
+7. spread 散播；传播；伸开；散布，伸展；活动范围；酱；扩散；铺开；摊开；撒；分布，差距；使流传；
+8. bloom 开花；开花期；青春时期；兴旺时期
+9. lawyer 律师
+10. outskirt 郊区；边缘，外围
