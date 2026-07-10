@@ -4047,3 +4047,18 @@ july 9th, 2026
 8. sprinkle 撒，洒；下稀疏的雨；小雨；少量
 9. physics 物理现象
 10. throne 王座；君主；宝座
+
+july 10th, 2026
+
+## day two hundred and seventy-one 
+
+1. ambulance 救护车
+2. pierce 穿(孔)；贯穿；突破
+3. village 村庄，乡村
+4. university 大学；高等学府
+5. winner 获胜者，得奖者
+6. bath 洗澡；浴缸；浴盆；洗澡水；浴室；给...洗澡；沐浴着；汗流浃背；泪流满面
+7. instant 立即的；即食的；紧急的；速溶的；瞬间；片刻
+8. approval 批准；赞同；试销；认可；许可
+9. acquire 获得；学到；得到；购得；患上
+10. complicate (使)变复杂
