@@ -4377,3 +4377,18 @@ july 31th, 2026
 8. learning 学习；知识
 9. handwriting 书写，手写；笔迹；书法
 10. everyone 每个人，人人,所有人
+
+August 1st, 2026
+
+## day two hundred and ninety-three
+
+1. worm 蠕虫，虫，蠕动
+2. fluent 讲得流利的；流畅熟练得；优美流畅得
+3. acid 酸性物质；酸味的；尖刻的；敏锐的；含酸过多的；酸的；酸性的；尖酸，酸
+4. intelligent 有智慧的，聪明的；智能的
+5. roast 烤，培，烘；挖苦；逗乐，烤肉，烤的，烘的
+6. dress 穿着，连衣裙；服装，打扮，给...穿衣
+7. surname 姓，用姓称呼
+8. tumble 跌倒，摔倒，摔下；翻滚下来；暴跌，(使)滚落
+9. distinct 截然不同的；独特的；明显的；清晰的；确切的，确定无误的
+10. writing 写作；著作；书写，书法；书面形式；笔迹，作品；文章
