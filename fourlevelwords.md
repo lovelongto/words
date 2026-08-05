@@ -4437,3 +4437,18 @@ August 4th, 2026
 8. Tuesday 星期二
 9. tend 照顾，照料，倾向，趋向；往往会发生某事；容易，倾向于
 10. career 职业，事业；生涯，经历；全速前进，猛冲，在...中急行
+
+August 5th, 2026
+
+## day two hundred and ninety-seven
+
+1. satisfaction 满足，满意；乐事；补偿
+2. resident 居民；住客；住院实习医师，常驻的；居住的；住校的；固有的
+3. attempt 尝试；努力，企图；试图，努力去做
+4. fearful 害怕的，担心的；吓人的，可怕的；胆怯的
+5. optical 光学的；视觉的
+6. usual 通常的，惯常的
+7. student 学生；学者；大学生
+8. exactly 精确地，准确地，确切地；究竟；正是，没错
+9. diligent 勤奋的，用功的
+10. light 点火，照亮，轻的；明亮的；不严重的；浅色的，轻柔的，微弱的；光亮；灯；电灯；轻轻地
