@@ -4542,3 +4542,18 @@ August 11th, 2026
 8. leisure 空闲的，闲暇，休闲；休闲(产业)
 9. apology 道歉，歉意
 10. community 社区；人群，很多个体的集合体；群体，团体；群落；社会；界
+
+August 12th, 2026
+
+## day three hundred and four
+
+1. religion 宗教；宗教信仰；宗教生活；虔诚的追求
+2. health 健康；身体(或精神)状况；医疗
+3. chest 胸部，胸膛；箱子，胸部传球
+4. correction 修正；改正；校正；更正
+5. enough 足够地；相当；足够的；充足的，充分的，足够；很多，够了
+6. victory 成功；克服；胜利
+7. disposal 销毁，丢掉，处理，去掉；清除；处置
+8. similarly 类似的，相似地
+9. dispose 排列，处理；处置；使愿意；布置
+10. declare 宣布，宣告，宣称，声称；表明；断言；申报；(在击球员还未全部出局时)宣布结束赛局
