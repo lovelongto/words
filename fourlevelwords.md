@@ -4632,3 +4632,18 @@ August 17th, 2026
 8. third 三分之一，第三的；第三
 9. horse 马，马科动物
 10. rubbish 垃圾，废物；废话
+
+August 18th, 2026
+
+## day three hundred and ten
+
+1. legal 合法的，法定的，法律的
+2. mankind 人类；男人
+3. quick 迅速的，快捷的；快的；即刻的，匆忙的；敏捷的；迅速地；(指甲下的)活肉
+4. continual 不断的，连续的；频繁的
+5. island 岛屿，岛，使孤立
+6. waterproof 防水的，耐水的；做防水处理；防水物，防水材料，雨衣
+7. saint 圣人；圣
+8. grasp 理解；领会，抓住，抓紧；把手，紧握
+9. count 计算；认为；计数；重要，有价值；看作，依赖；数；总数
+10. voluntary 自愿的；无偿的；志愿的；即兴曲
