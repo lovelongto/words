@@ -4678,7 +4678,7 @@ August 20th, 2026
 9. nobody 没有人；谁也不；无名小卒
 10. scar 伤疤，伤痕；内心创伤；给...留下了伤痕
 
-August 21th, 2026
+August 21st, 2026
 
 ## day three hundred and thirteen
 
@@ -4692,3 +4692,18 @@ August 21th, 2026
 8. minister 大臣，部长；公使，外交使节；牧师；照料，服侍；给予援助，救助
 9. use 使用，利用；对待；用法；使用权；用途；效用，用途，功能
 10. whoever 无论是谁，不管谁，任何人
+
+August 22nd, 2026
+
+## day three hundred and fourteen
+
+1. rear 后部；背面的；抚养；举起；后面
+2. delete 删除
+3. railway 铁路，铁道，乘火车旅行；在...铺设铁路
+4. almost 几乎，差不多
+5. comprehension 理解力；测试；领悟力；理解练习
+6. garden 花园，菜园；公园；从事园艺；花园的，菜园的；果园的
+7. attention 注意力;兴趣，关注，专心；注意，立正
+8. blow 吹，吹动，吹气；吹响；打击，殴打；爆炸；吹擤(鼻子)；刮；浪费(机会);破裂；不幸
+9. recommendation 推荐，建议；介绍；推荐信
+10. Nerve 神经；胆量，勇气；神经紧张；意志力；给...以力量，使振作
