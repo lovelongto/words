@@ -4782,3 +4782,18 @@ August 27th, 2026
 8. indefinite 模糊的；不清楚的；不确定的；无限的
 9. scout 童子军，侦察员，守卫；球探；侦察；监视；嘲笑；寻找，物色
 10. speciality 专长，专业(=specialty)；特色食品；特产
+
+August 28th, 2026
+
+## day three hundred and twenty
+
+1. American 美国人；美洲人；美国的，美国人的；美洲的
+2. horror 震惊,惊恐;令人惊恐的事；恐惧；恐怖
+3. airline 航空公司；航线
+4. aviation 航空学，航空；航空制造业；飞行
+5. discourage 劝阻；使泄气；阻拦，阻止
+6. terminal 终端，终点；航站楼；终点站；航空站；末端的；致命的；晚期的
+7. departure 离开；启程；背离；离职；开端；出发
+8. consume 消费，消耗；吃，喝，饮；毁灭
+9. cell 细胞；单间牢房；蜂房；电池；小隔间；单元格；电池单元；电池
+10. forward 前进；向前，向将来；进展；前向；往后；发送，寄；转寄，转投；促进；转发；前锋(又作lineman,spearhead)；向前的，前面的；未来的；冒失的
