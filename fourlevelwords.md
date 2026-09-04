@@ -4887,3 +4887,18 @@ September 3rd, 2026
 8. least 最小，最少量；最小的，最少的；最少地，最小地；微不足道
 9. reproduce 繁殖；生殖；再生产；再现；仿造；复制；复印；复现
 10. arise 产生，出现，起床，起身；升起；由...引起，发生
+
+September 4th, 2026
+
+## day three hundred and twenty-seven
+
+1. street 街道，大街
+2. proportional 比例项，比例量；成比例的，相称的
+3. needless 不需要的；不必要的；无用的
+4. fatal 致命的;灾难性的，毁灭性的；决定性的
+5. acceptable 尚可的，差强人意的；可接受的；认同的，认可的；受欢迎的
+6. materialism 物质主义，唯物主义
+7. counter 柜台；回击，反击；操作台；台子；计数器；相反地；抵制；反驳
+8. handle 把手，柄；处理，解决；操纵(车辆、动物、工具等)；搬动；(用手)触；句柄
+9. nuclear 核能的；原子能的；细胞核的；原子核的
+10. component 组件；零件，组成部分；分量；成分，要素，组成的
