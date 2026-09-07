@@ -4932,3 +4932,18 @@ September 6th, 2026
 8. attentive 专心的，注意的；肯帮忙的
 9. dialog 对话(=dailogue)；用对话表达
 10. aero 飞机的；飞行的；航空的
+
+September 7th, 2026
+
+## day three hundred and thirty
+
+1. friendship 友谊；友情；朋友关系
+2. drive 驾驶；驱使，迫使；驾车，开车；驾车送人；促使；驱使；驱动力；干劲；欲望；驾车旅行；驾车路程；驱动器；车道
+3. crane 起重机；吊车；鹤；伸长(脖子)
+4. action 行动；行为；情节；作战；诉讼，起诉；动作；动作片；动作空间；行为过程；务必对...进行处理
+5. violet 紫罗兰，紫罗兰色；紫色；紫色的，紫罗兰色的
+6. drug 药物；毒品；麻醉品；下麻药
+7. early 早的，早期的；早，先；在早期，在初期
+8. appropriate 合适的，适当的；恰当的；拨款；挪用；私占
+9. collective 集体的，共同的；集体
+10. kilometer 公里，千米
