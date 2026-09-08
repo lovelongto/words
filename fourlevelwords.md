@@ -4947,3 +4947,18 @@ September 7th, 2026
 8. appropriate 合适的，适当的；恰当的；拨款；挪用；私占
 9. collective 集体的，共同的；集体
 10. kilometer 公里，千米
+
+September 8th, 2026
+
+## day three hundred and thirty-one
+
+1. height 高度，高；最强点；顶点；高处；非常，极度；身高；高地
+2. playground 操场，游乐区，游戏场；活动场所
+3. objective 目标；客观的；真实的；宾格的；公正的
+4. break 中断；休息；破坏，违反；打破，摔碎；把...换成零钱，找开；破晓；破译，破解；骨折；摔断；缝隙；短期休假，短假；课间休息，间歇
+5. egg 鸡蛋；蛋，卵；用蛋覆盖；向...扔蛋
+6. careful 仔细的，细心的；小心的；精心的；谨慎的
+7. concrete 混凝土；混凝土制的；确实的；具体的；给(道路等)浇混凝土
+8. practically 实际上；几乎；简直
+9. japanese 日本人，日语；日本的，日本人的，日语的
+10. explosive 爆炸的，引起爆炸的；爆炸性的；剧增的；暴躁的；易爆的；炸药
