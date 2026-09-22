@@ -5143,7 +5143,7 @@ September 20th, 2026
 9. clothing 衣服；(某种)服装
 10. operation 操作；手术；经营；运转，运行；生意，企业；行动，活动；运算
 
-September 21thk 2026
+September 21th 2026
 
 ## day three hundred and forty-four
 
@@ -5157,3 +5157,18 @@ September 21thk 2026
 8. hand 手；方面；手掌；指针；帮助；行家；字迹；递，交；传递；搀扶；支持
 9. design 设计(方案)；图样；制造；设计略图；当设计师；构思；计划；旨在，目的是
 10. weaken 削弱，使虚弱；使动摇
+
+September 22th, 2026
+
+## day three hundred and forty-five
+
+1. burden 负担；烦扰；装载量；使负重，装载；烦扰；使负担
+2. warm 温暖的；热情的；暖色调的；使温暖；温暖地，暖和地；暖和(的地方)，保暖(的东西)
+3. solve 解决，处理；解释，解答；破解；解
+4. minus 负的；减号；缺点；劣势；负数；减，减去；零下
+5. porter 搬运工人；行李员；门房
+6. miss 思念，怀念；错过；未击中，未投中；未出席，未出现；避开；未察觉；遗漏；错误，过失；女士；小姐；年轻未婚女子
+7. gasoline 汽油
+8. shortly 不久，立刻；生气地，不耐烦地
+9. chairman 董事长，主席；议长；主持人
+10. establish 建立；证实，确定；确立；创立，成立；使安全；使成为；使确认
