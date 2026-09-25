@@ -5143,7 +5143,7 @@ September 20th, 2026
 9. clothing 衣服；(某种)服装
 10. operation 操作；手术；经营；运转，运行；生意，企业；行动，活动；运算
 
-September 21th 2026
+September 21st 2026
 
 ## day three hundred and forty-four
 
@@ -5158,7 +5158,7 @@ September 21th 2026
 9. design 设计(方案)；图样；制造；设计略图；当设计师；构思；计划；旨在，目的是
 10. weaken 削弱，使虚弱；使动摇
 
-September 22th, 2026
+September 22nd, 2026
 
 ## day three hundred and forty-five
 
@@ -5173,7 +5173,7 @@ September 22th, 2026
 9. chairman 董事长，主席；议长；主持人
 10. establish 建立；证实，确定；确立；创立，成立；使安全；使成为；使确认
 
-September 23th, 2026
+September 23rd, 2026
 
 ## day three hundred and forty-six
 
@@ -5202,3 +5202,18 @@ September 24th, 2026
 8. sheet 床单；被单；纸张；一大片；一张；玻璃片；薄片；(雨，雪等)下得很大
 9. vapour 蒸汽；蒸发的，自夸的
 10. bleed 流血；散开；榨取，敲诈；使流血；使...抽干；失血；渗开，渗透；放气；出血；出血版的
+
+September 25th, 2026
+
+## day three hundred and forty-eight
+
+1. removal 除去，切除；消除，清除；开除，免职；搬运家具；搬迁；迁移；去除
+2. canadian 加拿大人；加拿大的；加拿大(人)的
+3. length 长度；持续时间；一段(绳子、布、木头等)；(书或文件的)篇幅，(影片的)时长；长度；泳程
+4. rapid 迅速的；急促的；急流
+5. supplement 增补，补充物，保健品；附录，增刊；补充
+6. invasion 大量涌入，入侵，侵略；侵犯；侵袭
+7. mounment 纪念碑；历史遗迹，遗址
+8. valley 山谷，溪谷，低谷
+9. crude 原油；粗鲁的；天然的；粗糙的；粗鲁的；简陋的；大概的；粗略的
+10. imitate 模仿；仿制
