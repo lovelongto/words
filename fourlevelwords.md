@@ -5262,3 +5262,18 @@ September 28th, 2026
 8. lack 缺乏
 9. surgery 外科，外科学；外科手术；诊所
 10. beam 光线，波束；大梁，横梁；平衡木；杠杆；笑容；发光，照射；微笑；发射，播送
+
+September 29th, 2026
+
+## day three hundred and fifty-two
+
+1. theoretical 理论(上)的；理论上的；假设的
+2. solely 单独地，完全地
+3. baby 婴儿；宝贝；幼兽
+4. rapidly 迅速地，快速地；很快地；立即
+5. firm 公司；事务所；商行；使牢固，使稳固；变稳固；变坚实；稳固地；坚决的，坚定的；结实的；牢固的，稳固的；确定的；确凿的
+6. grow 成长，生长；增长；渐渐变得，逐渐成为；种植；发育
+7. accident 事故
+8. harmful 有害的，不良的；危害性
+9. dispute 争论；争吵，争论
+10. eastern 东方的；向东的；东行的
