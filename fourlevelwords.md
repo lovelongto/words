@@ -5292,3 +5292,18 @@ September 30th, 2026
 8. new 新的，新来的，新开始的；新鲜的；新发现的
 9. input 输入；投入；贡献
 10. lavatory 厕所，厕所的，粗秽的，抽水马桶，抽水马桶的
+
+October 1st, 2026
+
+## day three hundred and fifty-four
+
+1. flour 面粉
+2. invite 邀请；招致；征求
+3. indoors 在室内，往室内
+4. measurable 可测量的；显著的
+5. former 前任的；以前的；前者的；前者；形成者；模具
+6. metric 度量；度量标准；诗体，韵文，诗韵；指标；米制的，公制的
+7. drink 喝；喝酒；饮料；酒
+8. triangle 三角形；三角铁(一种乐器)；三人组
+9. sadly 伤心地；令人遗憾地，不幸地；悲哀地；悲痛地
+10. speed 速度，快速；速率；加速；快速前行；超速行驶；快速运送
