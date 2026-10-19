@@ -5562,3 +5562,18 @@ October 18th, 2026
 8. defend 保护，保卫；防守
 9. stranger 陌生人；新来者
 10. Marxism 马克思主义
+
+October 19th, 2026
+
+## day three hundred and seventy-two 
+
+1. sickness 疾病；呕吐；厌恶，反感；病症；恶心
+2. gauge 测量仪器；尺度，标准；标准厚度，标准宽度；估计；计量
+3. impossible 不可能的；不可能；不合情理的；荒唐的；遥不可及的；极艰难的，过分的；难对付的；不可能的事
+4. grandfather 爷爷，祖父，外公，外祖父
+5. withdraw 取款，撤退；收回；撤回所说的话(或所做的事)；(使)退出(活动、组织等)；撤出
+6. inn 客栈，小旅馆
+7. therefore 因此，所以
+8. wire 电线，电缆，导线，金属丝，金属线；给...装电线；将...连接到；拍电报；接通电源；给...安装铁丝网，用金属丝固定，用金属丝串
+9. darling 亲爱的，宝贝
+10. interfere 妨碍；插手，干涉
