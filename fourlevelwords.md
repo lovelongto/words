@@ -5637,3 +5637,18 @@ October 23rd, 2026
 8. success 成功，成就；成功的人或事
 9. requirement 要求；需要；必备条件
 10. sympathy 同情；意气相投；赞同；慰问
+
+October 24th, 2026
+
+## day three hundred and seventy-seven
+
+1. murderer 凶手，杀人犯；谋杀
+2. teaching 教学；教义；教导
+3. jacket 杰克衫，短上衣；(书籍的)护封；外套；唱片套，书套；穿上夹克
+4. acute 严重的；极度的；锐角，锐角的；尖音的；敏锐爹
+5. occupation 职业；居住；占领；占用；占据；消遣
+6. upside-down 颠倒的，上下倒置地；颠倒的；乱七八糟的
+7. landlord 地主，房东，地主；老板
+8. doubtful 怀疑的，疑惑的；不太可能的；令人生疑的，难以预测的；有问题的
+9. statement 声明；口供；结算单，报表
+10. outdoors 户外，野外，郊外，在户外，在野外
